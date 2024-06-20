@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @juneffrey6887
+- 👀 I’m interested in ...coding, generally speaking. 
+- 🌱 I’m currently learning ...(an aside; nonetheless) how to replace and repair analog joysticks for the dualsense controller. 
